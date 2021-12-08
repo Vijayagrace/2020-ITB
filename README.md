@@ -1,3 +1,4 @@
-# 2020-ITB
-The list of 2020 Batch IT B Students
-Dear Students, Pl;ease enter your Regd No, Name and Mobile number
+Good Evening sir,
+This is Vijaya Grace.
+My Reg no. 20b01a1299
+My mob no:7095172704
